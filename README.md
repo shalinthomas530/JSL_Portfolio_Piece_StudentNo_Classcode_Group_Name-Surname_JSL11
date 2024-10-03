@@ -1,6 +1,6 @@
 
 
-please find my loom video link below 
+Please find the link to my loom video link below 
 
 https://www.loom.com/share/8b6b49022cca46039ebf52028ec3175d?sid=6fff3cd4-b0dc-4174-a1a5-e0c162bbdd77
 
